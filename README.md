@@ -6,7 +6,7 @@ Sounava Bhowmick
 
 #
 
-💀 i has created the GitHub account <a href="https://github.com/realpega">realpega</a> randomly, no doubt!
+💀 i had created the GitHub account <a href="https://github.com/realpega">realpega</a> randomly, no doubt!
 
 On May 28, 2025, realpega got suspended and here's my new account <a href="https://github.com/koolpega">koolpega</a>
 
